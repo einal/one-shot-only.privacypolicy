@@ -1,0 +1,1 @@
+# one-shot-only.privacypolicy
